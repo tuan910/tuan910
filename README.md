@@ -8,7 +8,7 @@
 
 🎓 **Education**
 
-**Bachelor of Information and Communication Technology**  
+**Bachelor of Information Technology**  
 Hanoi University of Natural Resources and Environment  
 📅 Graduating May 2025
 
